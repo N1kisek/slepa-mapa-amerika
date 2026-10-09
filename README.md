@@ -1,1 +1,1 @@
-# slepa-mapa-amerika
+# Slepá Mapa Ameriky
